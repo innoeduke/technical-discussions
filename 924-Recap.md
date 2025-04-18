@@ -12,25 +12,21 @@ Our President, **Katarina Milanovic**, then took the stage, providing context ab
 
 **Tilman Rieger** delivered a captivating keynote focused on **Near Death Experiences (NDEs)**, drawing from extensive research and personal fascination:
 
--   **Composite NDE Narrative:** Tilman began by weaving together common elements of NDE accounts into a single, powerful story: the out-of-body experience (OOBE), observing medical efforts, feeling no pain, floating through walls, encountering a tunnel/light, feelings of unconditional love and homecoming, meeting deceased relatives (telepathic communication), experiencing hyper-real colors/bliss, undergoing a life review (experiencing effects of one's actions on others), and being told "it's not your time."
--   **Personal Journey & Research:** He shared how reading Anita Moorjani's book and subsequent deep dives into YouTube testimonials, books (Bruce Greyson, Raymond Moody, Jeffrey Long), podcasts, and expert interviews fueled his fascination over the past 3+ years.
--   **Transformative Impact:** Tilman highlighted the profound, life-altering effects NDEs often have on experiencers: loss of fear of death, career changes towards service, increased empathy, and sometimes psychic abilities. He cited Dr. Eben Alexander, a neuroscientist whose own NDE shifted his skepticism.
--   **Veridical Perception & Evidence:** He shared anecdotes suggesting consciousness operates outside the brain, such as patients accurately describing events they couldn't have physically witnessed (e.g., the nurse's car crash, the blind woman seeing details).
--   **Scientific Challenge:** NDEs challenge the standard materialistic view that the brain produces consciousness, suggesting instead that the brain might be a receiver or filter for a broader consciousness/soul/mind.
--   **Key Message & Call to Action:** Tilman encouraged exploring the data (books, websites like NDERF.org, testimonials), finding hope in the possibility of continued existence and reunion, and embracing the core messages often brought back: love, learn, experience, be authentic, and have fun.
-
-During the brief Q&A, Tilman discussed the difficulty of convincing rational skeptics, the difference between NDEs and meditation (though meditation can be a tool for reconnection), and shared personal "synchronicity" experiences rather than a full NDE.
+- Tilman began by weaving together common elements of NDE accounts into a single, powerful story. He shared how reading Anita Moorjani's book and subsequent deep dives into YouTube testimonials, books (Bruce Greyson, Raymond Moody, Jeffrey Long), podcasts, and expert interviews fueled his fascination over the past 3+ years. 
+- Tilman highlighted the profound, life-altering effects NDEs often have on experiencers: **loss of fear of death, career changes towards service, increased empathy, and sometimes psychic abilities.**
+- He cited Dr. Eben Alexander, a neuroscientist whose own NDE shifted his skepticism. NDEs challenge the standard materialistic view that the brain produces consciousness, suggesting instead that the brain might be a receiver or filter for a broader consciousness/soul/mind.
+- Tilman encouraged exploring the data (books, websites like NDERF.org, testimonials), finding hope in the possibility of continued existence and reunion, and embracing the core messages often brought back: **love, learn, experience, be authentic, and have fun.**
 
 ## Table Topics
 
-**Lili Wu**, our **Table Topics Master**, led an engaging session cleverly themed around the keynote, prompting speakers with questions related to life and death. Six individuals who shared their thoughts. They are: Keeva McCotter, Fedir, Shelley He, Cloris, Joel, and Shirley Li. Keeva delivered the Best Table Topics Speech by sharing a harrowing story of a turbulent flight, developing a severe fear of flying, her 10-year coping mechanism (alcohol), and finally facing the fear sober, emphasizing pushing comfort zones to survive and overcome.
+**Lili Wu**, our **Table Topics Master**, led an engaging session cleverly themed around the keynote, prompting speakers with questions related to life and death. Six individuals who shared their thoughts. They are: **Keeva McCotter, Fedir, Shelley He, Cloris, Joel, and Shirley Li**. **Keeva** delivered **the Best Table Topics Speech** by sharing a harrowing story of a turbulent flight, developing a severe fear of flying, her 10-year coping mechanism (alcohol), and finally facing the fear sober, emphasizing pushing comfort zones to survive and overcome.
 
 ## New Member Induction & New Guest Greetings
 
 The club was thrilled to welcome two fantastic new members to the SHLTMC family. Victoria and Andrew, led by VPM **Margarita Lozovskaya**, shared fascinating 90-second speeches as new members.
 
--   **Victoria:** Shared her journey from being terrified at her first meeting ("dangerously talented people!") to winning Table Topics that same night, thanks to the club's supportive atmosphere. She spoke about realizing Toastmasters helps build leaders who connect, not just speak, and embracing discomfort for growth.
--   **Andrew:** Related to Victoria's initial hesitation, sharing his own year-long journey from first attending (in April!) to finally joining (in April!). He credited the club's diverse and welcoming nature ("the best, most diverse Toastmasters") and encouraged guests to "just dive into it."
+-   **Victoria Matveeva:** Shared her journey from being terrified at her first meeting (**"dangerously talented people!"**) to winning Table Topics that same night, thanks to the club's supportive atmosphere. She spoke about realizing Toastmasters helps build leaders who connect, not just speak, and embracing discomfort for growth.
+-   **Andrew Power:** Related to Victoria's initial hesitation, sharing his own year-long journey from first attending (in April!) to finally joining (in April!). He credited the club's diverse and welcoming nature (**"the best, most diverse Toastmasters"**) and encouraged guests to **"just dive into it."**
 
 **Victoria**'s mentor will be **John Zhang**, and **Fred Zhang** will provide mentorship to **Andrew**.
 
@@ -49,7 +45,7 @@ Three members delivered compelling prepared speeches:
 -   **Fanghua Li - "Asking Expert" (Persuasive Influence 3.1: Understanding Conflict Resolution):** Fanghua humorously detailed the daily "disaster" of conflicts at home with his wife and mother-in-law over getting his young kids ready in the morning and fed properly in the evening. Finding himself without authority, his solution was to "ask the expert" – the kindergarten teacher – whose simple rules, when communicated clearly, resolved the long-standing issues.
 -   **John Zhang - "A Masterpiece" (Presentation Mastery 4.1: Generic Speech Project):** John painted a vivid scene of working on a Bali beach, feeling out of place. 
 
-Congratulations to **John Zhang** for delivering the Best Prepared Speech!
+Congratulations to **John Zhang** for delivering **the Best Prepared Speech**!
 
 ## Evaluation Session
 
